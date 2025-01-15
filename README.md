@@ -1,2 +1,2 @@
-# reDI-2024#
-# I lOVE Coding#
+# reDI-2024
+# I lOVE Coding
